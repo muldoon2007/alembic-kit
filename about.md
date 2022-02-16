@@ -2,4 +2,6 @@
 title: About this website
 ---
 
-I'm not sure yet what this website is about, but I'm sure I'll work it out soon.
+This website is about me. And my Daddy's name is Daddy. And I have a twin named Kevin. And my older brother's name is Lucas.
+
+And I don't like school cuz school's easy.
